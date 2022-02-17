@@ -1,1 +1,1 @@
-I am now a student
+I am now a student that's awesome
